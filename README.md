@@ -1,4 +1,8 @@
 ## Hi there 👋
+😁El meu nom és David / Mi nombre es David / My name is David😁
+👍Sóc Estudiant de la Universitat Tecnològica del Perú/ Soy estudiante de la Universidad Tecnologica del Perú / I am a student at the Technological University of Peru👍
+                                                ![GoofyGawrshGIF (2)](https://github.com/user-attachments/assets/483453ed-2455-43b0-be23-d47076dda531)
+
 
 <!--
 **DavidParrales123123/DavidParrales123123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
