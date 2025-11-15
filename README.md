@@ -3,7 +3,6 @@
 
 👍Sóc Estudiant de la Universitat Tecnològica del Perú/ Soy estudiante de la Universidad Tecnologica del Perú / I am a student at the Technological University of Peru👍
                                                
-                                                     ![CoolSunglassesGIF](https://github.com/user-attachments/assets/72f8c8b6-3032-4a56-acdd-26bbbc860234)
    
 
 
