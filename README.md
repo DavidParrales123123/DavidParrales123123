@@ -2,7 +2,9 @@
 😁El meu nom és David / Mi nombre es David / My name is David😁
 
 👍Sóc Estudiant de la Universitat Tecnològica del Perú/ Soy estudiante de la Universidad Tecnologica del Perú / I am a student at the Technological University of Peru👍
-                                                ![GoofyGawrshGIF (2)](https://github.com/user-attachments/assets/483453ed-2455-43b0-be23-d47076dda531)
+                                               
+                                                     ![CoolSunglassesGIF](https://github.com/user-attachments/assets/72f8c8b6-3032-4a56-acdd-26bbbc860234)
+   
 
 
 <!--
